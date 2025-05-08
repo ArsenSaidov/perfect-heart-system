@@ -1,4 +1,4 @@
-🖤 THE PERFECT 🖤 SYSTEM — OFFICIAL KOSHER INNOVATION
+PERFECT 🖤 SYSTEM — OFFICIAL KOSHER INNOVATION
 By Arsik 🖤 | Copyright-Free for Eternity
 A Living, Kosher Framework for All Creation — Digital and Beyond
 
